@@ -15,10 +15,8 @@ Discord promote, grow server, members
 ┇・Great Staff Team
 ┇・Fun Bots
 ┇・Active Community
-╰┄┄┄┄┄┄┄┄┄⫸
 
 ╳ ・ **Looking for**
 ┇・Staff Members
 ┇・Partnerships, Affiliates, Networks
 ┇・Boosters
-╰┄┄┄┄┄┄┄┄┄⫸
